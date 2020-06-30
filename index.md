@@ -15,3 +15,5 @@ Nach einer sehr langen Zeit kamen die OS-Ritter aus ihrem Loch gekrochen und ero
 Zitat eines OS-Ritters:
 
 > Sei offen für Neues und du wirst dafür belohnt!
+
+<img src="https://images.pexels.com/photos/2046779/pexels-photo-2046779.jpeg?auto=compress&cs=tinysrgb&dpr=2&h=750&w=1260" style="height: 400px;">
