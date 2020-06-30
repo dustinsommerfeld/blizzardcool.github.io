@@ -14,4 +14,4 @@ Nach einer sehr langen Zeit kamen die OS-Ritter aus ihrem Loch gekrochen und ero
 
 Zitat eines OS-Ritters:
 
-> "Sei offen für Neues und du wirst dafür belohnt!"
+> Sei offen für Neues und du wirst dafür belohnt!
