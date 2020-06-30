@@ -9,3 +9,9 @@ Nach einer sehr langen Zeit kamen die OS-Ritter aus ihrem Loch gekrochen und ero
 * Vorlieben: gepanzerte Pferde
 * Essen: Schweinskeule
 * Hobbys: Schwertkampf & Pferderennen
+
+**Zitat**
+
+Zitat eines OS-Ritters:
+
+> "Sei offen für Neues und du wirst dafür belohnt!"
